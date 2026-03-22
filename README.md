@@ -2,7 +2,7 @@
 - 👀 I’m interested in QA manual
 - 🌱 I’m currently learning QA intern 
 - 💞️ I’m looking to collaborate on different products 
-- 📫 How to reach me nkrivolapoff@mail.ru
+- 📫 How to reach me nk017@proton.me
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
